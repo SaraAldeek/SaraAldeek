@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @SaraAldeek
+- 👀 I’m a Technical Recruiter at Stealth Startup
+- 📫 You can email me on sarael.deek3@gmail.com or through linked in: https://www.linkedin.com/in/sara-aldeek-095118207/
